@@ -1,0 +1,2 @@
+# oam_yokoze20190402terasakatanada02
+横瀬町20190402寺坂棚田での撮影（DroneDeploy利用）中尾撮影
